@@ -20,7 +20,7 @@
 
     * Sertifikat resmi terbit 7-10 hari kerja setelah tes.
 
-    * FEASEBLE TANGGAL 10 JULI
+    * MUNGKIN TANGGAL 10 JULI
 
 3. https://lbifib.ui.ac.id/archives/3693
 
